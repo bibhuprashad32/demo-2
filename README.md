@@ -1,5 +1,5 @@
 # Verified
 
 ## HEY againnnnn
-## this time the braqnch will be basic .....
+## this time the branch will be basic .....
 ###### lets seeeee
